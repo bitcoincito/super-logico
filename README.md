@@ -7,3 +7,4 @@ y vuelve la lógica
 del supercampeón
 que dió música ligera
 al carnaval del rock
+vagueando fue paseando
