@@ -8,3 +8,4 @@ del supercampeón
 que dió música ligera
 al carnaval del rock
 vagueando fue paseando
+por la avenida que da al mar
