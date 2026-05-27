@@ -9,3 +9,6 @@ que dió música ligera
 al carnaval del rock
 vagueando fue paseando
 por la avenida que da al mar
+y se fue desinflando
+como un temporal
+cuando se va caminando
