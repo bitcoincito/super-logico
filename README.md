@@ -12,3 +12,5 @@ por la avenida que da al mar
 y se fue desinflando
 como un temporal
 cuando se va caminando
+por los campos del norte
+buscando otro destino
