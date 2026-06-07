@@ -15,3 +15,5 @@ cuando se va caminando
 por los campos del norte
 buscando otro destino
 en donde intimidar
+pinchando en el ego
+de lo superficial
