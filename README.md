@@ -18,3 +18,4 @@ en donde intimidar
 pinchando en el ego
 de lo superficial
 buscando en el flexo
+de la yugular
