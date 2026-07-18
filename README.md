@@ -34,3 +34,4 @@ con la mafia celestial
 impotencia marcial
 silencio colosal
 de montaña boreal
+con anillo angelical
