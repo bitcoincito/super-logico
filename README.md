@@ -32,6 +32,7 @@ del maula cerebral
 de la ilusión banal
 con la mafia celestial
 impotencia marcial
+de sol comercial
 silencio colosal
 de montaña boreal
 con anillo angelical
