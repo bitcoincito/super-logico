@@ -38,3 +38,4 @@ de montaña boreal
 con anillo angelical
 corona hormonal
 desgarro angular
+de faz sentimental
