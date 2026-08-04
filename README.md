@@ -52,4 +52,6 @@ de creencias guiadas
 de ordas camufladas
 en alegres puebladas
 que sienten culpa
-de un pasado que se
+de un pasado que 
+sus próceres ultrajaron
+
