@@ -58,4 +58,5 @@ de la espuma popular
 con malicia angelical
 de imbancable cervical
 del lobo filosofo 
+carne del resentimiento
 
