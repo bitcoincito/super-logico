@@ -57,6 +57,7 @@ sus próceres ultrajaron
 de la espuma popular
 con malicia angelical
 de imbancable cervical
-del lobo filosofo 
+de lobo filosofal 
 carne del resentimiento
+que deja sin aliento
 
