@@ -62,4 +62,5 @@ carne del resentimiento
 que deja sin aliento
 al pistolero inocente
 creido en arrabalero
+bañado de soberbia
 
