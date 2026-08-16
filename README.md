@@ -64,4 +64,5 @@ al pistolero inocente
 creido en arrabalero
 bañado de soberbia
 se encuentra con la hierba
+dentada del coliseo
 
