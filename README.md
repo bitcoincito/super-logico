@@ -68,4 +68,5 @@ dentada del coliseo
 con la espada clavada
 en el sueño corrompido
 de un lamento de rocio
+que regalaba hastio
 
