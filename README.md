@@ -71,4 +71,5 @@ de un lamento de rocio
 que regalaba hastio
 en la arena que yacia
 mordida por el aliento
+del susurro del viento
 
