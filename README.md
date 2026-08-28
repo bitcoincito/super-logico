@@ -77,5 +77,6 @@ con ir somnoliento
 buscando el encuentro
 con el ser suculento
 cocinado en aliento
+de rocas de cimientos
 
 
