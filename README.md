@@ -86,3 +86,4 @@ que aterrizan en cal
 mojada en sufrimiento
 de sopeso lamento
 con suspiro lento
+de tándem sediento
