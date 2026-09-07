@@ -87,3 +87,4 @@ mojada en sufrimiento
 de sopeso lamento
 con suspiro lento
 de tándem sediento
+con hambre resilento
