@@ -88,3 +88,4 @@ de sopeso lamento
 con suspiro lento
 de tándem sediento
 con hambre resilento
+de focas vaqueras
