@@ -92,3 +92,4 @@ de focas vaqueras
 de cowboys de kiosco
 en napas de cemento
 con débiles juramentos
+de mentiras de manteca
