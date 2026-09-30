@@ -108,4 +108,5 @@ en el universo de rastrojo
 con anillos de hinojo
 en centollas de antojos
 con muletillas de piojos
-vagueando en sandalias
+vagando en sandalias
+de estrellas de dalias
