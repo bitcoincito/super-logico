@@ -112,3 +112,4 @@ vagando en sandalias
 de estrellas de dalias
 que muestran medallas
 de semovientes batallas
+de erizados matices
