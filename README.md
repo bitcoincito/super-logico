@@ -113,3 +113,4 @@ de estrellas de dalias
 que muestran medallas
 de semovientes batallas
 de erizados matices
+con pelajes grises
