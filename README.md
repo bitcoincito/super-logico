@@ -115,3 +115,4 @@ de semovientes batallas
 de erizados matices
 con pelajes grises
 de zombis sesgados
+por números marcados
