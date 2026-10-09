@@ -117,3 +117,4 @@ con pelajes grises
 de zombis sesgados
 por números marcados
 por maleantes elegantes
+sentados en elefantes
