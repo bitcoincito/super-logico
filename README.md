@@ -118,3 +118,4 @@ de zombis sesgados
 por números marcados
 por maleantes elegantes
 sentados en elefantes
+con trompetas vacilantes 
