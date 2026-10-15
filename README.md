@@ -121,3 +121,4 @@ sentados en elefantes
 con trompetas vacilantes 
 de  siluetas rampantes 
 con señuelos cruzados
+de matices dejados
