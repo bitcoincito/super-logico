@@ -124,3 +124,4 @@ con señuelos cruzados
 de matices dejados
 en patines pelados
 de ramones ganados
+con escudos besados
