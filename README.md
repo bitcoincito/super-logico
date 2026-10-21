@@ -127,3 +127,4 @@ de ramones ganados
 con escudos besados
 de ampones basados 
 con ampollas quemadas
+de diásporas gastadas
