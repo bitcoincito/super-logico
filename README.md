@@ -135,3 +135,4 @@ en colinas humeadas
 con esmaltes salteados
 de rios bañados
 con sangre labrada
+de espuelas marcadas
