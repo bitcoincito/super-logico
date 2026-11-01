@@ -132,6 +132,7 @@ en telarañas mareadas
 en gestiones vedadas 
 de comensales quebradas
 en colinas humeadas
+de pendientes caminadas
 con esmaltes salteados
 de rios bañados
 con sangre labrada
