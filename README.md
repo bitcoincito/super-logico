@@ -134,6 +134,7 @@ de comensales quebradas
 en colinas humeadas
 de pendientes caminadas
 con esmaltes salteados
+de lejanos tejados
 de rios bañados
 con sangre labrada
 de espuelas marcadas
