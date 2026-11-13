@@ -146,3 +146,4 @@ con crayones quemados
 en hogueras bendadas
 con capones estériles
 de pichones castrados
+con albóndigas viciadas
