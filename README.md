@@ -149,3 +149,4 @@ de pichones castrados
 con albóndigas viciadas
 de bondades llevadas
 en maletas cerradas
+con candados bedados
