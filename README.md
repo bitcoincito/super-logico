@@ -155,3 +155,4 @@ de flores borradas
 con penas cantadas
 disfrazadas de fontanas
 con alas hilvanadas 
+de espuelas gastadas
