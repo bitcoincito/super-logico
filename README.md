@@ -157,3 +157,4 @@ disfrazadas de fontanas
 con alas hilvanadas 
 de espuelas gastadas
 con puntas manchadas
+con tintas usadas
